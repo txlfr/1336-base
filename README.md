@@ -1,1 +1,1 @@
-Read my code of i can nigga 
+Read my code if u can nigga 
